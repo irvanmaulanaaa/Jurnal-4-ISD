@@ -1,1 +1,4 @@
-# Jurnal-4-ISD
+# Jurnal 4
+NAMA : IRVAN MAULANA
+
+NIM  : 607062330013
